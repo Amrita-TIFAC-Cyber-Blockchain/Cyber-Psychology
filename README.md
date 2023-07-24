@@ -3,9 +3,13 @@
 
 ## Cyber Psychology
 
+### Research Center
+- [National Anti-Bullying Research and Resource Centre](https://antibullyingcentre.ie/)
+  
 ### Applications
 - In Clinical Settings
 - In Education
 - In Business
 
 ## Resources
+
